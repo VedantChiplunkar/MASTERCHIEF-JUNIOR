@@ -1,2 +1,1 @@
-# MASTERCHIEF-JUNIOR
-RED VELVET YUMMY DELICIOUS CAKE
+The recipe is used to make a Southern Red Velvet Cake.
